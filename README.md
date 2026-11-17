@@ -1,0 +1,1 @@
+# janibek5689-coder-diploma-warehouse-ai-inventory
